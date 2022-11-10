@@ -1,5 +1,5 @@
 ### Hi there 👋 
-Pronouns he/they
+### Pronouns he/they
 ### have luck and a good day
 
 <!--
